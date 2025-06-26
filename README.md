@@ -1,1 +1,0 @@
-# manuel-albuera-jr.github.io
